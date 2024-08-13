@@ -1,16 +1,15 @@
-## Hi there 👋
+### Arthurzin prazer em conhece-los e bem vindo ao meu perfil 🖤
 
-<!--
-**arthur07077/arthur07077** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Meu nome é arthur
 
-Here are some ideas to get you started:
+- Estou estudando no COLEGIO Pimpão que eu mandoo
+- Estou estudando alura
+- Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### VOCÊ PODE ENTRAR EM CONTATO COMIGO 📫
+ 
+arthurfelipecasa07@gmail.com
+
+@4rthur_.flxxh1
+
+![_](https://media1.tenor.com/m/kPBGULXYKz8AAAAC/%D8%A7%D9%84%D9%86%D8%B5%D8%B1-ronaldo-al-nassr.gif)
